@@ -14,5 +14,5 @@ Birth. Growth. Death. Rebirth. I... I need some rest.
 
 ⭐ Credits & Inspiration
 
-[moonglitch.avi]([url](https://www.youtube.com/watch?v=0qkh6vredyo&t=210s)) by mark101
-The Broken Script by wendigodrip, RedstoneWizard08, rdh, DominikLOL, and MC3699
+moonglitch.avi by mark101: https://www.youtube.com/watch?v=0qkh6vredyo&t=210s
+The Broken Script by wendigodrip, RedstoneWizard08, rdh, DominikLOL, and MC3699: https://modrinth.com/mod/the-broken-script
