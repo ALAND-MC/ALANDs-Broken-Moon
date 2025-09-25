@@ -12,6 +12,8 @@ Birth. Growth. Death. Rebirth. I... I need some rest.
 
 -The Lunatic
 
+Showcase Video: https://www.youtube.com/watch?v=yAni79K3LQE
+
 ⭐ Credits & Inspiration
 
 moonglitch.avi by mark101: https://www.youtube.com/watch?v=0qkh6vredyo&t=210s
